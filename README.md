@@ -5,8 +5,8 @@
 </div>
 
 ## Creators
-- Manimo_o  
-    [YouTube](https://youtube.com/@manimo_o)
+- Manimo
+  - [YouTube](https://youtube.com/@manimo_o)
 - Act of Learning
   - [YouTube](https://www.youtube.com/channel/UCofF7Mp_VtoOZ9rhl_ueX7g)
   - [Twitter](https://twitter.com/muthuveerappanr)
